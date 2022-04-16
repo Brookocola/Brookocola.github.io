@@ -29,7 +29,7 @@ Rage, rage against the dying of the light.*
 
 - 2021-05-21
 
-  See 🦊Luoluo here
+  🦊Luoluo is here
 
   ![](src/luoluo.jpg)
 
