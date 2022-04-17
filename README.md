@@ -27,13 +27,9 @@ Rage, rage against the dying of the light.*
 
 ---
 
-- 2021年5月21日,于珞珈山
+### 2U
 
-  🦊Luoluo is here
-
-  <img src="src/luoluo.jpg"  />
-  
-  <img src="src/luoluo_manholecover.jpg"  />
+[meet🦊in Luojia](/2U/Luoluo/Luoluo.md)
 
 #### IF U ARE WILLING,Contact me via:  
 **Email**: 2019302130115@whu.edu.cn OR 2015564688@qq.com   
