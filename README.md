@@ -25,8 +25,8 @@ Curse, bless, me now with your fierce tears, I pray.
 Do not go gentle into that good night.  
 Rage, rage against the dying of the light.*
 
-这是星际穿越里的一首诗，送给每个到来的你。
-Do not go gentle into that good night,Gargantua has no end.
+这是星际穿越里的一首诗，送给每个到来的你。  
+Do not go gentle into that good night,
 
 
 
