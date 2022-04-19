@@ -26,7 +26,7 @@ Do not go gentle into that good night.
 Rage, rage against the dying of the light.*
 
 这是星际穿越里的一首诗，送给每个到来的你。  
-Do not go gentle into that good night,
+Do not go gentle into that good night,...
 
 
 
@@ -35,6 +35,8 @@ Do not go gentle into that good night,
 [meet🦊in Luojia](/2U/Luoluo/Luoluo.md)
 
 [Old Trafford's amazing play⚽](/2U/Ronaldo_hattrick/Ronaldo_hattrick.md)
+
+[个人树洞🌚](/2U/2u/2u.md)
 
 
 ## IF U ARE WILLING,Contact me via:  
