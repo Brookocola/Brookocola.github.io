@@ -38,6 +38,8 @@ Do not go gentle into that good night,...
 
 [个人树洞🌚](/2U/2u/2u.md)
 
+[武大回答机](https://mp.weixin.qq.com/s/2MfK2Wv3ZuGfdfPaVm6q9w)
+
 
 ## IF U ARE WILLING,Contact me via:  
 **Email**: 2019302130115@whu.edu.cn OR 2015564688@qq.com   
