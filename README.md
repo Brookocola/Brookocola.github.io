@@ -40,6 +40,8 @@ Do not go gentle into that good night,...
 
 [Red Rose🌹](/2U/Redrose/Redrose.md)
 
+[无花果🥜](/2U/Fig/Fig.md)
+
 
 ## IF U ARE WILLING,Contact me via:  
 **Email**: 2019302130115@whu.edu.cn OR 2015564688@qq.com   
