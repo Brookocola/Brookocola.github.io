@@ -48,7 +48,7 @@ Do not go gentle into that good night,...
 
 [Untitled🤐](/2U/Untitled/Untitled.md)
 
-[Le Rouge et le Noir](/2U/Red%26Black/Red%26Black.md)
+[Le Rouge et le Noir](/2U/Red_Black/Red_Black.md)
 
 ## IF U ARE WILLING,Contact me via:  
 **Email**: 2019302130115@whu.edu.cn OR 2015564688@qq.com   
