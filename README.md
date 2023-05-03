@@ -50,6 +50,8 @@ Do not go gentle into that good night,...
 
 [Le Rouge et le Noir](/2U/Red_Black/Red_Black.md)
 
+[期待 五月见夏](/2U/Mayday/Mayday.md)
+
 ## IF U ARE WILLING,Contact me via:  
 **Email**: 2019302130115@whu.edu.cn OR 2015564688@qq.com   
 **Wechat**: Xxx19142183873   
