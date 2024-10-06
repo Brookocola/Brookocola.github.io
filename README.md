@@ -65,6 +65,12 @@ Do not go gentle into that good night,...
 
 [🌚](/2U/Jupter/Jupter.md)
 
+### 2024
+
+[当时只道是寻常](/2U/Cherish/Cherish.md)
+
+["因为完全是等待"](/2U/Wait/Wait.md)
+
 ## IF U ARE WILLING,Contact me via:  
 **Email**: shiyun.xn@whu.edu.cn OR 2015564688@qq.com   
 **Wechat**: Xxx19142183873   
