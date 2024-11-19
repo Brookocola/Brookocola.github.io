@@ -53,21 +53,12 @@ Do not go gentle into that good night,...
 
 ### 2023
 
-[Le Rouge et le Noir](/2U/Red_Black/Red_Black.md)
-
-[期待 五月见夏](/2U/Mayday/Mayday.md)
-
 [City](/2U/City/City.md)
 
 [拯救世界](/2U/Superhero/Superhero.md)
 
-[🎧](/2U/Time/Time.md)
-
-[🌚](/2U/Jupter/Jupter.md)
 
 ### 2024
-
-[当时只道是寻常](/2U/Cherish/Cherish.md)
 
 ["因为完全是等待"](/2U/Wait/Wait.md)
 
